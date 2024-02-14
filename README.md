@@ -1,1 +1,1 @@
-![](MYPPOTO.jpg)
+![](icon.jpg)
